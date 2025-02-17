@@ -4,9 +4,13 @@ welcome to my github profile..!!
 i'm a **he/him** and identify as a boy
 
 i can code:
+
 Lua and *Luau*
+
 HTML, CSS
+
 Python
+
 C#
 
 currently working on roblox exploits and my *300K+* visit game known as [every server has an owner](https://www.roblox.com/games/18192691674/every-server-has-a-owner-remake)
