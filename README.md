@@ -13,7 +13,7 @@ Python
 
 C#
 
-currently working on roblox exploits and my *300K+* visit game known as [every server has an owner](https://www.roblox.com/games/18192691674/every-server-has-a-owner-remake)
+currently working on roblox exploits and my ~~*300K+*~~ **400K?!?!!+** visit game known as [every server has an owner](https://www.roblox.com/games/18192691674/every-server-has-a-owner-remake)
 
 ### socials and stuff
 
