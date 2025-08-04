@@ -1,7 +1,7 @@
 ## Yoooooo!!
 welcome to my github profile..!!
 
-i'm a **he/him** and identify as a boy
+i'm a **he/him** and identify as bisexual 
 
 i can code:
 
